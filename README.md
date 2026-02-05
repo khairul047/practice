@@ -1,1 +1,1 @@
-This is for practic
+This is for practice
